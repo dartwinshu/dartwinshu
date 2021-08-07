@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Dartwin
 - 👀 I’m interested in data science
 - 🌱 I’m currently learning SQL and python
-- 💞️ I’m looking to collaborate on data analyises project
+- 💞️ I’m looking to collaborate on data analysis project
 - 📫 dartwinshu123@gmail.com
 
 <!---
