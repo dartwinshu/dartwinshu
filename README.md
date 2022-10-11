@@ -1,4 +1,4 @@
-Dartwin is a deeply motivated professional with engineering and business background who is consistent in developing himself on management, product and data, as well as seeking challenges in work. Dartwin is a passionate, data-driven, and life-long learner.
+Dartwin is a deeply motivated professional with engineering and business background who is developing himself in management, operations and data consistently. Experienced in market analysis and project management at a multinational joint venture with >5 bn USD investment. Dartwin is a passionate, data-driven, and life-long learner.
 
 If you think we share the same interest or vision, you need some of my opinions or help or look for some collaborations, please do not hesitate to let me know!
 
