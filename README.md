@@ -2,10 +2,10 @@ Dartwin is a deeply motivated professional with engineering and business backgro
 
 If you think we share the same interest or vision, you need some of my opinions or help or look for some collaborations, please do not hesitate to let me know!
 
-My Business Intelligence Portfolio:
+My Business Intelligence Portfolio (in PPT):
 https://bit.ly/PortfolioBusinessIntelligenceDartwin
 
-My General Portfolio:
+My General Portfolio Links:
 https://linktr.ee/dartwin
 
 <!---
